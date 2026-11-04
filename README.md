@@ -142,3 +142,5 @@ THE SACRIFICIAL LAMB , BUYCD] girl who the hell is u
 Fake Smile Y/N] "Boys vs girls gacha life singing battle"
 
 Joost Klein; sign-ata & straw!] "black this white that how about i skin you alive and see what colour you are now"
+
+048/Scar/"leader" of prideclan] Rare sighting of a tlk and sth fan interacting after 2024
