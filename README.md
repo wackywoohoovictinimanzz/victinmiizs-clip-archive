@@ -66,3 +66,33 @@ Oops, you left Worthy hanging!] we are damon gant the carry Oh Sorry I ATbbed U 
  What chapter does he die] you will feel my warth .
 
  04:33 PM[【 —Unpaid intern— 】 c*h/s.ata] I ate the child
+ 
+[insert ojousama laugh] TSK TSK TSK Osman boy FIX YOUR SITE IMMEDIATELY.
+
+Snowball-Castle cats] PIZZA GUY
+
+05:42 PM[🌀 [ 15 ] ;; lagging ok] thinks: 02:42 PM[︵︶ ·。 ore furansu] whispers: are you still eating cement bals02:42 PM[︵︶ ·。 ore furansu] whispers: why not MY
+
+[~ ` Monkey D. Luffy ` ~] 👣👣👣W2j a feet rp! You can be a toe, feet, anything you want! W2j feet rp👣👣👣
+
+04:20 PM[Candle] You a gayboy
+
+valerie apologists dni] *rips off your ear* AH--!!! sorry onichan..
+
+acedrews real] oh hi klavier sells yourkLIVER
+
+09:14 AM[person] im going to flay you alive
+
+11:12 AM[Hi i is albenian plis respekt] whispers: Let😡😡😡😡😡me in 😡😡😡😡😡😡😡😡😡😡I'm albanian blurry😡😡😡😡😡😡😡/ref
+
+11:08 AM[. 🧟⋆;' ONLY REAL ONE. #IT] some man used his mustache to grab me before i fell
+
+HAHHAHAHAHAHAHHOHOHHOHOHOHO] i will skin you alive
+
+donald mc ronald] thinks: 🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅🍅
+
+OUCHIMATIONS!!] cries in despirate pain
+
+Gren] thinks: Im going to murder everyone.
+
+karl g&b, sign ata c+h] scratches butt
