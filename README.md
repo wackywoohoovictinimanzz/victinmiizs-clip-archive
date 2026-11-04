@@ -1,5 +1,6 @@
 # victinmiizs-clip-archive
 collection of ALL my pony town clips (for archive purposes because MY CLIPBOARD KEEPS DELETING THEM)
+oh my gyatt editing this is making mii realize how much clips i have. what have i done /JJ
 
 [C + H plsss] im not healing im gooning
 
