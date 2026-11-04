@@ -114,3 +114,22 @@ say shell ees] thinks: keep drooling sonny boy
 ## [Man Up * fict-kin] I will pluck out each hair follicle from your scalp, Cody.
 
 (i tried to make yhe text bigger but idk how github works)
+
+Feddi] .... Bonnie, go left, foxy, you know what to do! And Chica.... Be yourself.. together we are... FNAF!
+
+don't try s--cide! /lyrc] here's how i'll torture you, victiniz: 1. the marrow furnace, i'll inject
+
+[krispy kreme] 10:50 AM[ʜᴏᴛᴛᴇsᴛ ᴅᴏᴄᴛᴏʀ ミ ᴄ + ʜ √] thinks: 06:31 PM[stupid lesbian dog] "I LOST THE BABY 😭!!" B/W FOR ABORTION RP! 🛑 "OH NOO!!!" 😀
+
+eu sinto o shadow no meu cu] 1 from like the alphabet or whatever
+
+Meat Grinder] Skinning people and throwing them in a meat grinder : Target :: bayonetta . uh check githubpls
+
+AA] lol not guilty , fictkin] thinks: yeah, true... i-i'm a catboy...! nyan nyan~...!
+
+[【Senpai 【ラルセイ, fan-design 🎀] thinks: Teleports off and enimini mini mo catch a tiger by the toe bomboclat pink
+
+My favorite yaoi] How we gon guess air
+
+hi I blue from among us] I'm shtotingg myself
+
