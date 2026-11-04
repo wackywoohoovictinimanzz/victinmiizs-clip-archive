@@ -97,3 +97,20 @@ OUCHIMATIONS!!] cries in despirate pain
 Gren] thinks: Im going to murder everyone.
 
 karl g&b, sign ata c+h] scratches butt
+
+Snowball-Castle cats] Gay boy
+
+Snowball-Castle cats] PHENOIX
+
+Snowball-Castle cats] IT'S THE FRUIT BASKET
+
+supagal😋‼] HEH BAKAA...~!
+04:43 PM[supagal😋‼] omg shoot me
+
+Stun] `` Tung tung no ! `` . W 2 j , Dramatic Italian Brain rot roleplay !VERY SERIOUS ROLEPLAY . 13+ TUNG TUNG AND TRALALELO BREAKING UP SCENE N :
+
+say shell ees] thinks: keep drooling sonny boy
+
+## [Man Up * fict-kin] I will pluck out each hair follicle from your scalp, Cody.
+
+(i tried to make yhe text bigger but idk how github works)
