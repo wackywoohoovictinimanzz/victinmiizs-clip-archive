@@ -144,3 +144,5 @@ Fake Smile Y/N] "Boys vs girls gacha life singing battle"
 Joost Klein; sign-ata & straw!] "black this white that how about i skin you alive and see what colour you are now"
 
 048/Scar/"leader" of prideclan] Rare sighting of a tlk and sth fan interacting after 2024
+
+Bee] Hi guys my name is Spyglass and I like killing off parrot's friends
