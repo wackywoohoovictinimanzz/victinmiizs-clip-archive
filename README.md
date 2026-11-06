@@ -146,3 +146,5 @@ Joost Klein; sign-ata & straw!] "black this white that how about i skin you aliv
 048/Scar/"leader" of prideclan] Rare sighting of a tlk and sth fan interacting after 2024
 
 Bee] Hi guys my name is Spyglass and I like killing off parrot's friends
+
+[F.D Billy<EW>C+H DNKSS] I def didint shoot the host with a ak47
