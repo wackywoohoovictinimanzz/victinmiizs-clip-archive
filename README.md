@@ -148,3 +148,7 @@ Joost Klein; sign-ata & straw!] "black this white that how about i skin you aliv
 Bee] Hi guys my name is Spyglass and I like killing off parrot's friends
 
 [F.D Billy<EW>C+H DNKSS] I def didint shoot the host with a ak47
+
+[pellets of unfriendliness] thinks: ❄ . gooningtomitya
+
+Low budget king in yellow] YOU ARE TOO MUCH OF A FURRY TO BE WITH ALPHA ME
