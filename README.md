@@ -152,3 +152,9 @@ Bee] Hi guys my name is Spyglass and I like killing off parrot's friends
 [pellets of unfriendliness] thinks: ❄ . gooningtomitya
 
 Low budget king in yellow] YOU ARE TOO MUCH OF A FURRY TO BE WITH ALPHA ME
+
+7 seconds💔💔] whispers: Coughs in your ear
+
+Aj afk] I'm gonna give you t virus gng
+
+cjcjcjcj] if you dont like my undies i will rip them off
