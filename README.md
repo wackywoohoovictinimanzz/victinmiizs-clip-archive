@@ -158,3 +158,19 @@ Low budget king in yellow] YOU ARE TOO MUCH OF A FURRY TO BE WITH ALPHA ME
 Aj afk] I'm gonna give you t virus gng
 
 cjcjcjcj] if you dont like my undies i will rip them off
+
+kangleity] thinks: 💔. :; "Tung tung.. Why?" W2J. Italian Brainrot ANGST AU RP. SRS, LORE. N:
+
+oc dnk dnc w2i c+h dni iwc] whispers: My armpit itches🥺🥺🥺🥺🥺🥺🥺
+
+love john reprieve] " Tralalelo no ! " . w 2 J . ITALIAN BRAINROT ANGST , WATCH TRALALELO AND TUNG TUNG BREAKING UP SCENE ! 🌹 SERIOUS . N :
+
+ɢʟᴀᴄɪᴇʀ [🌑]] thinks: shut up beetroot flavored bubblegum hair
+
+Wemmbu. ! Spec. /C+H PLS int] Im so gay i could kiss the wall
+
+Hiding skins - DNK - c+h ✔] whispers: F-FINE...!!!
+11:42 AM[Hiding skins - DNK - c+h ✔] whispers: It's not like I wanted you to join anyway...!!!
+11:42 AM[Hiding skins - DNK - c+h ✔] whispers: BAKA
+
+Lil twa] I ate the dev team.
